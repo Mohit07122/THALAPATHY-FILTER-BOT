@@ -85,7 +85,7 @@ Cᴏᴍᴍᴀɴᴅs Aɴᴅ Usᴀɢᴇ:
 my features Stay here new features coming soon...  
  <b>✯ Maintained by : <a href=https://t.me/NKP_PRO>☢RIO NETWORKS☢</a></b>
   
- <b>✯ Join here : <a href=https://t.me/fhp_request_backup>☢Join my updateds☢</a></b> 
+ <b>✯ Join here : <a href=https://t.me/movie4usfree>☢Join my updateds☢</a></b> 
   
  ./id - <code>ɢᴇᴛ ɪᴅ ᴏꜰ ᴀ ꜱᴘᴇᴄɪꜰɪᴇᴅ ᴜꜱᴇʀ.</ 
  code> 
